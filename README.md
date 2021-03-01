@@ -1,3 +1,3 @@
 # Contenido de tecladitos
 
-[Canal de youtube](youtube.com/u/Tecladitos)
+[Canal de youtube](https://www.youtube.com/Tecladitos)
